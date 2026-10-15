@@ -1,5 +1,5 @@
 
-# Hi I'm vivek gupta 👋
+# Hi I'm vivek kumar 👋
 
 ### B.Tech Biotechnology Student | Exploring Genetics & Genomics 
 
