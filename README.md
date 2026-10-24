@@ -38,9 +38,9 @@ B.Tech Biotechnology | 2026-2030
 Class 12 | CBSE | 2024
 Bihar,India 
 
-**Jesus & mary acedamy**
+**Angel High School**
 
-Class 10 | ICSE | 2022
+Class 10 | CBSE | 2022
 Bihar,India 
 
 ## 🏔️ Career Interests
